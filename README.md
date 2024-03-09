@@ -2,7 +2,7 @@
 - 👀 I’m interested in miniworld
 - 🌱 I’m currently learning  sorry i cant understand this English
 - 💞️ I’m looking to collaborate on miniworld hack
-- 📫 How to reach me：relate in miniworld
+- 📫 How to reach me：contact in miniworld
 - 😄 Pronouns: ... idont know
 - ⚡ Fun fact: ... idont know
 
